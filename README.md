@@ -1,4 +1,4 @@
-# <p align="center" style="color:#cb3349" > [ Source Lord  (Final Version)](https://telegram.me/vvhvvv)
+# <p align="center" style="color:#cb3349" > [ Source Lord  (The most powerful among the sources)](https://telegram.me/vvhvvv)
 
  <p align="center" style="color: #14635c;" > سورس لورد اقوى سورس من خلال التصميم والحماية
 
